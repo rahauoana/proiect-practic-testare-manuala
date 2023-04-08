@@ -1,0 +1,1 @@
+# proiect-practic-testare-manuala
